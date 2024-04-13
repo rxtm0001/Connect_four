@@ -1,2 +1,2 @@
-Ricardo Tapia \n
+Ricardo Tapia
 Daniel De La Rosa
